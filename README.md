@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Overcontrol1
+- 👀 I’m interested in ... your mother.
+- 🌱 I’m currently learning ... how to seduce your mother.
+- 💞️ I’m looking to collaborate on ... your mother.
+- 📫 How to reach me ... I'll be at your mother's house.
